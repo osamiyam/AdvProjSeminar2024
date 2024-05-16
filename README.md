@@ -5,7 +5,7 @@
 課題を5月30日までに下記のGoogle Formsへ提出してください．
 課題は資料の中の**「練習問題４」**です．
 
-* リンク：[link](https://forms.gle/3GM3aAKnKPFUDX1s9)
+* リンク：[https://forms.gle/3GM3aAKnKPFUDX1s9](https://forms.gle/3GM3aAKnKPFUDX1s9)
 * 提出期限：2024年5月30日
 
 
